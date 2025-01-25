@@ -1,1 +1,1 @@
-https://github.com/Саид-Селим89/ono-tebe-nado-fd
+https://github.com/Said-Selim89/ono-tebe-nado-fd
